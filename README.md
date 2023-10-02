@@ -13,8 +13,6 @@
 
 - 💬 Ask me about **Not now**
 
-- 📫 How to reach me **md.maruf99707@gmail.com**
-
 - ⚡ Fun fact **I am not like fun .**
 
 <h3 align="left">Connect with me:</h3>
